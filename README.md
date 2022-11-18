@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @VinxQT
+- 👀 I’m interested in Blockchain Development, Robotics and Automation
+- 🌱 I’m currently learning Robotics
+- 📫 You can reach me trough gmsil - parasarvinit@gmail.com 
